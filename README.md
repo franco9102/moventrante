@@ -1,0 +1,2 @@
+# moventrante
+mov entrante ori
